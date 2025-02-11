@@ -1,4 +1,11 @@
-## Hi there 👋
+
+I'm Nick, a Rutgers sophmore majoring in Computer Science.
+
+C++, Python, Java, Zig
+
+Always open to work on what interests me
+
+• 📥[Email me](mailto:nickk@tuta.com)
 
 <!--
 **05/05** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
