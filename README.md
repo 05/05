@@ -7,4 +7,4 @@ C++, Python, Java, Zig
 
 Always open to work in whatever interests me.
 
-• 📥 [email me](mailto:nickk@tuta.com)
+• 📥 [contact](mailto:nickk@tuta.com)
