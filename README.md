@@ -6,5 +6,5 @@
 　　,ゝ　 ⌒`ｙ'''´
 　 （ (´＾ヽこつ
 　　 ) )
-　　(ノ                                                                                                      nickkanan.com
+　　(ノ                                                                                           nickkanan.com
 ```
