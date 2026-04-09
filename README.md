@@ -6,5 +6,5 @@
 　　,ゝ　 ⌒`ｙ'''´         be interested in, please contact nickk@tuta.com
 　 （ (´＾ヽこつ
 　　 ) )                                                                                  
-　　(ノ                                                                                  nickkanan.com         
+　　(ノ                                                        nickkanan.com         
 ```
