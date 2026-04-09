@@ -5,6 +5,6 @@
 　 (ヽｖ'　　　`''ﾞつ      in particular, although if you have something i may
 　　,ゝ　 ⌒`ｙ'''´         be interested in, please contact nickk@tuta.com
 　 （ (´＾ヽこつ
-　　 ) )                                                                                  nickkanan.com
-　　(ノ                                                                                           
+　　 ) )                                                                                  
+　　(ノ                                                                                  nickkanan.com         
 ```
