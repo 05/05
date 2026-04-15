@@ -1,5 +1,5 @@
 ```
- ᶻ 𝗓 𐰁    ∧,,　       currently living in japan
+ ᶻ 𝗓 𐰁    ∧,,　       currently living in kyoto
 　　　　ヾ ｀. ､`フ
 　　　(,｀'´ヽ､､ﾂﾞ        as of march 2026, not currently working on anything
 　 (ヽｖ'　　　`''ﾞつ      in particular, although if you have something i may
